@@ -19,3 +19,9 @@ Prepara un espacio tranquilo y una esterilla.
 Realiza una secuencia de posturas (asanas) durante 30-60 minutos.
 
 Finaliza con respiración profunda o meditación.
+
+## Consejos
+
+Usa ropa cómoda.
+
+No fuerces las posturas; escucha tu cuerpo.
