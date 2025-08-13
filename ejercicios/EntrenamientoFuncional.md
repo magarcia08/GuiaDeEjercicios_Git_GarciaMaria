@@ -19,3 +19,9 @@ Calienta con movilidad articular y cardio ligero.
 Realiza circuitos con ejercicios como sentadillas, planchas, saltos y levantamientos.
 
 Trabaja entre 20 y 45 minutos.
+
+## Consejos
+
+Adapta los ejercicios a tu nivel físico.
+
+Prioriza la calidad de la técnica sobre la velocidad.
