@@ -19,3 +19,9 @@ Calienta con movimientos suaves.
 Realiza ejercicios de control y respiración durante 30-45 minutos.
 
 Estira al finalizar la sesión.
+
+## Consejos
+
+Concéntrate en la respiración y el control del movimiento.
+
+Hazlo sobre una superficie cómoda y estable.
