@@ -11,3 +11,11 @@ Fortalece todos los grupos musculares.
 Protege las articulaciones.
 
 Mejora la capacidad pulmonar.
+
+## Instrucciones
+
+Calienta fuera o dentro del agua con movimientos suaves.
+
+Nada diferentes estilos durante 20-45 minutos.
+
+Realiza estiramientos después de salir del agua.
