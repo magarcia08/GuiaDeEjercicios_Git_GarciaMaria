@@ -19,3 +19,9 @@ Calienta con salto de cuerda y movilidad articular.
 Practica golpes, combinaciones y desplazamientos durante 30-60 minutos.
 
 Enfría con estiramientos y respiración controlada.
+
+## Consejos
+
+Usa guantes y vendas para proteger tus manos.
+
+Aprende la técnica antes de aumentar la intensidad.
