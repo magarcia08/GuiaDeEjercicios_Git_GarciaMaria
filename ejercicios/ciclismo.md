@@ -19,3 +19,9 @@ Ajusta el asiento y manillar a tu altura.
 Realiza un calentamiento de 5-10 minutos.
 
 Pedalea durante 30-60 minutos a un ritmo moderado o con intervalos.
+
+## Consejos
+
+Usa casco y ropa adecuada si es al aire libre.
+
+Mantén la espalda recta y evita encorvarte.
