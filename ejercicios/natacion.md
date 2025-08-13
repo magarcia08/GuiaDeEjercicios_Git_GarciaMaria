@@ -19,3 +19,9 @@ Calienta fuera o dentro del agua con movimientos suaves.
 Nada diferentes estilos durante 20-45 minutos.
 
 Realiza estiramientos después de salir del agua.
+
+## Consejos
+
+Mantén una técnica correcta para evitar lesiones.
+
+Varía los estilos para trabajar diferentes músculos.
