@@ -11,3 +11,11 @@ Aumenta fuerza, resistencia y potencia.
 Mejora la composición corporal.
 
 Desarrolla habilidades físicas variadas.
+
+## Instrucciones
+
+Calienta con ejercicios dinámicos y movilidad articular.
+
+Realiza el WOD (Workout of the Day) siguiendo la programación.
+
+Enfría con estiramientos y liberación miofascial.
