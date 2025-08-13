@@ -11,3 +11,11 @@ Mejora la movilidad y estabilidad.
 Fortalece músculos y articulaciones.
 
 Aumenta la resistencia y coordinación.
+
+## Instrucciones
+
+Calienta con movilidad articular y cardio ligero.
+
+Realiza circuitos con ejercicios como sentadillas, planchas, saltos y levantamientos.
+
+Trabaja entre 20 y 45 minutos.
